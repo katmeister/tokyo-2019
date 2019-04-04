@@ -94,3 +94,27 @@ Yup. Went here again.
 * 📍 Ginza
 * 🍽 Tonkatsu
 * 🚀 [Google Maps](https://goo.gl/maps/jNCLW4qKyzu) / [Website](https://www.facebook.com/tonkatsuaoki/) / [Tabelog](https://tabelog.com/en/tokyo/A1301/A130101/13219635/)
+
+## Day 4
+
+### Counterpart Coffee Gallery
+* 📍 Nishi-shinjuku
+* :coffee: Morning pourover
+* 🚀 [Google Maps](https://goo.gl/maps/hyFs343As3G2) / [Website](http://www.counterpartcoffeegallery.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1304/A130401/13190469/)
+
+🙈
+
+### Kanda Tamagoken (神田たまごけん 秋葉原店)
+* 📍 Akihabara
+* 🍽 Omurice
+* 🚀 [Google Maps](https://goo.gl/maps/n6KT2UptWNq) / [Website](http://www.tamagoken.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1311/A131101/13178900/)
+
+### GLITCH Coffee & Roasters
+* 📍 Kanda nishikicho
+* :coffee: Afternoon pourover flight
+* 🚀 [Google Maps](https://goo.gl/maps/QDRqUA5c1nB2) / [Website](http://glitchcoffee.com/)
+
+### Minami no kaeru (みなみのカエル)
+* 📍 Nakano
+* 🍽 Izakaya
+* 🚀 [Google Maps](https://goo.gl/maps/BEJtfRcgKAL2) / [Website](https://www.facebook.com/minaminokaeru/) / [Tabelog](https://tabelog.com/en/tokyo/A1319/A131902/13197118/)
