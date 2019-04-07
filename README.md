@@ -88,7 +88,7 @@ We tried both the monja and okonomiyaki. It was okay, but that's probably becaus
 
 | ℹ️ | 📷 |
 | --- | --- |
-| There was quite the wait for this line when we went—seems to be a popular spot. Noodles were nice and bouncy, but not sure if it was worth the wait! | ![udon shin](https://user-images.githubusercontent.com/13490001/55678812-de648d00-58b4-11e9-89d6-f66222302e26.jpg) |
+| There was quite a line when we went—seems to be a popular spot. Noodles were nice and bouncy, but not sure if it was worth the wait! | ![udon shin](https://user-images.githubusercontent.com/13490001/55678812-de648d00-58b4-11e9-89d6-f66222302e26.jpg) |
 
 ## Day 3
 
