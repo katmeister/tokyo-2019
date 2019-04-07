@@ -1,6 +1,8 @@
 # Tokyo 2019 🗼
 A log of everything I ate and coffee I drank during my Tokyo 2019 trip 🍡☕🍛
 
+* [Week 1](#day-05)
+
 ## Day 0.5
 
 ### Shinjuku sanchome nikuzushi (新宿三丁目 肉寿司)
