@@ -134,15 +134,27 @@ WHOA, this place was only ￥1,000 for a chirashi. We went with the Tokyo GitHub
 * 🍽 Omurice
 * 🚀 [Google Maps](https://goo.gl/maps/n6KT2UptWNq) / [Website](http://www.tamagoken.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1311/A131101/13178900/)
 
+| ℹ️ | 📷 |
+| --- | --- |
+| Quick bite typa place, but really tasty! You have the option to choose two sauces. I picked tomato and demiglace. | ![2019-03-15 01 36 32 2](https://user-images.githubusercontent.com/13490001/55678889-16b89b00-58b6-11e9-9a21-4353cf894941.jpg) |
+
 ### GLITCH Coffee & Roasters
 * 📍 Kanda nishikicho
 * :coffee: Afternoon pourover flight
 * 🚀 [Google Maps](https://goo.gl/maps/QDRqUA5c1nB2) / [Website](http://glitchcoffee.com/)
 
+| ℹ️ | 📷 |
+| --- | --- |
+| Well-known shop. We did a pourover tasting with a Kenya and two Ethiopia beans. Bold and clear flavors, I distinctly remember the tomato taste. Super third wave-y. | ![2019-03-15 01 36 31 2](https://user-images.githubusercontent.com/13490001/55678888-16b89b00-58b6-11e9-8113-a02dfc52d1ee.jpg) |
+
 ### Minami no kaeru (みなみのカエル)
 * 📍 Nakano
 * 🍽 Izakaya
 * 🚀 [Google Maps](https://goo.gl/maps/BEJtfRcgKAL2) / [Website](https://www.facebook.com/minaminokaeru/) / [Tabelog](https://tabelog.com/en/tokyo/A1319/A131902/13197118/)
+
+| ℹ️ | 📷 |
+| --- | --- |
+| Our first izakaya of the trip, guided by a local friend. Really lovely, seasonal dishes. I enjoyed their take on izakaya classics, like this potato salad with cornhash beef and a soft-boiled egg. | ![minami no kaeru](https://user-images.githubusercontent.com/13490001/55678926-ef160280-58b6-11e9-8aaa-e733fa0a26d5.jpg) |
 
 _And then we drunkenly went to a lovely karaoke bar that I don't remember the name of. It was a good night._
 
