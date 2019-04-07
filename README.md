@@ -19,14 +19,16 @@ Great first dinner. This small joint literally translates to "meat sushi"—as e
 
 | ℹ️ | 📷 |
 | --- | --- |
-| Brunch at this famous fluffy pancake chain! I tried the berry pancakes. Definitely good, but was more dense than I expected. | ![]() |
+| Brunch at this famous fluffy pancake chain! I tried the berry pancakes. Definitely good, but was more dense than I expected. | ![flippers](https://user-images.githubusercontent.com/13490001/55678655-57aeb080-58b2-11e9-84d7-c0fa95c730b5.jpg) |
 
 ### Perch by Woodberry Coffee Roasters
 * 📍 Daikanyama
 * :coffee: Afternoon pourover
 * 🚀 [Google Maps](https://goo.gl/maps/9ucU95Qb6KC2) / [Website](https://woodberrycoffee.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1303/A130303/13199435/)
 
-Cozy coffee shop with a beautiful interior. The pourover was decent.
+| ℹ️ | 📷 |
+| --- | --- |
+| Cozy coffee shop with a beautiful interior. The pourover was decent. | ![perch](https://user-images.githubusercontent.com/13490001/55678685-dc99ca00-58b2-11e9-8d5c-0694e48ed3fe.jpg) |
 
 ### Harajuku Gyozalo (原宿餃子樓)
 * 📍 Jingumae
@@ -40,7 +42,10 @@ Our pre-dinner. Fairly standard gyoza joint. Lots of seating.
 * 🍽 Yakitori
 * 🚀 [Google Maps](https://goo.gl/maps/J3ecEwbaN8q) / [Website](http://www.shibuyadogenzaka.com/morimoto/main.html) / [Tabelog](https://tabelog.com/en/tokyo/A1303/A130301/13001787/)
 
-Really great yakitori place, one of my favorite meals. They have an English menu, but ordering may be difficult if you're uncomfortable speaking Japanese. 💸 Cash only!
+| ℹ️ | 📷 |
+| --- | --- |
+| 🌟 Really great yakitori place, one of my favorite meals. They have an English menu, but ordering may be difficult if you're uncomfortable speaking Japanese. 💸 Cash only! | ![morimoto](https://user-images.githubusercontent.com/13490001/55678687-dd326080-58b2-11e9-8af2-16245b8b63c3.jpg) |
+
 
 ## Day 2
 
@@ -49,27 +54,41 @@ Really great yakitori place, one of my favorite meals. They have an English menu
 * :coffee: Morning pourover
 * 🚀 [Google Maps](https://goo.gl/maps/hyFs343As3G2) / [Website](http://www.counterpartcoffeegallery.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1304/A130401/13190469/)
 
-Within my top two third-wave coffee shops we visited, for sure.
+| ℹ️ | 📷 |
+| --- | --- |
+| 🌟 Within my top two coffee shops we visited, for sure. Had a chiller vibe amongst the third-wave coffee shops we tried. I was able to try every single bean they had on rotation during the first week 😄 | ![counterpart coffee gallery](https://user-images.githubusercontent.com/13490001/55678686-dd326080-58b2-11e9-9b5e-07db069333ce.jpg) |
 
 ### Asakusa Sakura (浅草さくら)
 * 📍 Asakusa
 * 🍰 Melon pan
 * 🚀 [Google Maps](https://goo.gl/maps/6ovLEjiGNNE2) / [Tabelog](https://tabelog.com/en/tokyo/A1311/A131102/13195651/)
 
+Huge and delicious melon pan!!!
+
 ### Shichigosan (七五三)
 * 📍 Asakusa
 * 🍽 Okonomiyaki + monjayaki
 * 🚀 [Google Maps](https://goo.gl/maps/qUf7SuQuXXw) / [Website](http://www.asakusa753.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1311/A131102/13016869/)
+
+We tried both the monja and okonomiyaki. It was okay, but that's probably because I prefer Hiroshima style.
 
 ### nana's green tea
 * 📍 Shinjuku
 * 🍰 Sweets
 * 🚀 [Google Maps](https://goo.gl/maps/qS5shmfhSvN2) / [Website](http://www.nanasgreentea.com/)
 
+| ℹ️ | 📷 |
+| --- | --- |
+| 🌟 Super yummy dessert shop with a variety of sweets, from traditional zenzai to modern parfaits. I got the black sesame anmitsu. We had to wait a bit, but definitely worth it. | ![nanas green tea](https://user-images.githubusercontent.com/13490001/55678774-0e5f6080-58b4-11e9-9da7-51b98a6447f5.jpg) |
+
 ### Udon Shin (うどん慎)
 * 📍 Shinjuku
 * 🍜 Udon
 * 🚀 [Google Maps](https://goo.gl/maps/QPzKwAwS3Pt) / [Website](https://www.udonshin.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1304/A130401/13125862/)
+
+| ℹ️ | 📷 |
+| --- | --- |
+| There was quite the wait for this line when we went—seems to be a popular spot. Noodles were nice and bouncy, but not sure if it was worth the wait! | ![udon shin](https://user-images.githubusercontent.com/13490001/55678812-de648d00-58b4-11e9-89d6-f66222302e26.jpg) |
 
 ## Day 3
 
@@ -85,15 +104,21 @@ Yup. Went here again.
 * 🍣 Sushi
 * 🚀 [Google Maps](https://goo.gl/maps/6AwSEuaDt932) / [Website](https://www.daimon-takezushi.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1314/A131401/13013894/)
 
+WHOA, this place was only ￥1,000 for a chirashi. We went with the Tokyo GitHubbers 💝
+
 ### ON THE WAY, coffee pit shop
 * 📍 Shibakoen
 * :coffee: Afternoon latte
 * 🚀 [Google Maps](https://goo.gl/maps/9Xwbtg3UgWo) / [Website](https://on-the-way.jp/) / [Tabelog](https://tabelog.com/en/tokyo/A1314/A131401/13202841/)
 
-### Tonakatsu Aoki (とんかつ檍 銀座店)
+### Tonkatsu Aoki (とんかつ檍 銀座店)
 * 📍 Ginza
 * 🍽 Tonkatsu
 * 🚀 [Google Maps](https://goo.gl/maps/jNCLW4qKyzu) / [Website](https://www.facebook.com/tonkatsuaoki/) / [Tabelog](https://tabelog.com/en/tokyo/A1301/A130101/13219635/)
+
+| ℹ️ | 📷 |
+| --- | --- |
+| Breading was good, pork was juicy, but a little too fatty for my tastes. Dinner set also came with tonjiru and pickles. | ![tonkatsu aoki](https://user-images.githubusercontent.com/13490001/55678811-de648d00-58b4-11e9-9161-bef536829f5c.jpg) |
 
 ## Day 4
 
