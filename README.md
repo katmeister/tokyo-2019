@@ -128,26 +128,28 @@ Counterpart Coffee again :coffee:
 ### Afuri
 * 📍 Roppongi
 * 🍜 Ramen/tsukemen
-* 🚀 [Google Maps]() / [Website]() / [Tabelog]()
+* 🚀 [Google Maps](https://goo.gl/maps/7PXWXcws6rH2) / [Website](http://afuri.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1307/A130701/13165303/dtlphotolst/1/)
 
 First time trying the famous Afuri chain! I'm personally a fan of _assari_ (light) broths, so I really enjoyed the yuzu tsukemen. Others in my group who like _kotteri_ (rich) broths weren't as impressed.
 
 ### DOWNSTAIRS COFFEE
 * 📍 Roppongi
 * :coffee: Afternoon latte
-* 🚀 [Google Maps]() / [Website]() / [Tabelog]()
+* 🚀 [Google Maps](https://goo.gl/maps/zPq6nV5mcKP2) / [Website](https://www.transit-web.com/content/shops/downstairs-coffee/downstairs/) / [Tabelog](https://tabelog.com/en/tokyo/A1307/A130701/13129689/)
 
 This shop is owned by Mercedes Benz and has a large downstairs seating area. It was super packed when we went, and the soy latte was alright.
 
-### Kintan
+### Kintan (六本木焼肉Kintan)
 * 📍 Roppongi
 * 🍽 Yakiniku
-* 🚀 [Google Maps]() / [Website]() / [Tabelog]()
+* 🚀 [Google Maps](https://goo.gl/maps/EHJVPHSEamM2) / [Tabelog](https://tabelog.com/en/tokyo/A1307/A130701/13166084/)
 
-### Bar 1967
+### 1967
 * 📍 Roppongi
-* 🍷 Fancy bar
-* 🚀 [Google Maps]() / [Website]() / [Tabelog]()
+* 🍷 Fancy lounge
+* 🚀 [Google Maps](https://goo.gl/maps/RAHhnpCUfXB2) / [Website](http://www.bagus-99.com/1967/) / [Tabelog](https://tabelog.com/en/tokyo/A1307/A130701/13153619/)
+
+Garden lounge at night was 😍 We paid ￥800 per person to get in. Decent cocktails.
 
 ## Day 6
 
