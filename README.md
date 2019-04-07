@@ -118,3 +118,82 @@ Yup. Went here again.
 * 📍 Nakano
 * 🍽 Izakaya
 * 🚀 [Google Maps](https://goo.gl/maps/BEJtfRcgKAL2) / [Website](https://www.facebook.com/minaminokaeru/) / [Tabelog](https://tabelog.com/en/tokyo/A1319/A131902/13197118/)
+
+_And then we drunkenly went to a lovely karaoke bar that I don't remember the name of. It was a good night._
+
+## Day 5
+
+Counterpart Coffee again :coffee:
+
+### Afuri
+* 📍 Roppongi
+* 🍜 Ramen/tsukemen
+* 🚀 [Google Maps]() / [Website]() / [Tabelog]()
+
+First time trying the famous Afuri chain! I'm personally a fan of _assari_ (light) broths, so I really enjoyed the yuzu tsukemen. Others in my group who like _kotteri_ (rich) broths weren't as impressed.
+
+### DOWNSTAIRS COFFEE
+* 📍 Roppongi
+* :coffee: Afternoon latte
+* 🚀 [Google Maps]() / [Website]() / [Tabelog]()
+
+This shop is owned by Mercedes Benz and has a large downstairs seating area. It was super packed when we went, and the soy latte was alright.
+
+### Kintan
+* 📍 Roppongi
+* 🍽 Yakiniku
+* 🚀 [Google Maps]() / [Website]() / [Tabelog]()
+
+### Bar 1967
+* 📍 Roppongi
+* 🍷 Fancy bar
+* 🚀 [Google Maps]() / [Website]() / [Tabelog]()
+
+## Day 6
+
+### Bear Pond Espresso
+* 📍 Shimokitazawa
+* :coffee: Morning gibraltor
+* 🚀 [Google Maps](https://goo.gl/maps/yse6Se2xfp62) / [Website](http://www.bear-pond.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1318/A131802/13093829/)
+
+### Ojaga (おじゃが)
+* 📍 Shimokitazawa
+* 🍽 Potato dishes
+* 🚀 [Google Maps](https://goo.gl/maps/D78N6Jn8hYv) / [Website](https://shimokita-ojaga.com/71589/) / [Tabelog](https://tabelog.com/en/tokyo/A1318/A131802/13049309/)
+
+### Shimokita Chaen Oyama (しもきた茶苑大山)
+* 📍 Shimokitazawa
+* 🍰 Shaved ice + sweets
+* 🚀 [Google Maps](https://goo.gl/maps/YE81pXM4BDP2) / [Website](https://shimokita-chaen.com/) / [Tabelog](https://tabelog.com/tokyo/A1318/A131802/13025597/)
+
+🌟 This was my favorite dessert place 😭 We got the zenzai with shirotama + kinako, and matcha shaved ice.
+
+### Sankyuu/Yamahisa (山久)
+* 📍 Jiyugaoka
+* 🍽 Soba
+* 🚀 [Google Maps](https://goo.gl/maps/PJq19F6Dq9r) / [Tabelog](https://tabelog.com/cn/tokyo/A1317/A131703/13005094/)
+
+Tabelog and Google Maps translate the shop name differently 🤷‍ Either way, it's delicious!!!
+
+### WOMB
+* 📍 Shibuya
+* 💃 Club
+* 🚀 [Google Maps](https://goo.gl/maps/iQcR6DR19FJ2) / [Website](http://www.womb.co.jp/)
+
+The one club we went to 😂 Drinks were whatever, people were respectful, and they played tropical and deep house all night.
+
+## Day 7
+
+Counterpart Coffee again :coffee:
+
+### Iseroku (伊勢ろく)
+* 📍 Ikebukuro
+* 🍽 Oyakodon
+* 🚀 [Google Maps](https://goo.gl/maps/5PAtsW6Zq7x) / [Website](http://www.ise-corporation.jp/iseten.html) / [Tabelog](https://tabelog.com/en/tokyo/A1305/A130501/13003931/)
+
+The special with raw egg on top was 🔥 🍳 ❤️
+
+### Tsukiji Miyagawa Honten (つきじ宮川 本廛)
+* 📍 Tsukiji
+* 🍽 Unagi
+* 🚀 [Google Maps](https://goo.gl/maps/BwC1arowCP12) / [Website](http://www.unagi-miyagawanorenkai.jp/) / [Tabelog](https://tabelog.com/en/tokyo/A1313/A131301/13002304/)
