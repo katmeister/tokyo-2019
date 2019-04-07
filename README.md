@@ -167,7 +167,9 @@ Counterpart Coffee again :coffee:
 * 🍜 Ramen/tsukemen
 * 🚀 [Google Maps](https://goo.gl/maps/7PXWXcws6rH2) / [Website](http://afuri.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1307/A130701/13165303/dtlphotolst/1/)
 
-First time trying the famous Afuri chain! I'm personally a fan of _assari_ (light) broths, so I really enjoyed the yuzu tsukemen. Others in my group who like _kotteri_ (rich) broths weren't as impressed.
+| ℹ️ | 📷 |
+| --- | --- |
+| First time trying the famous Afuri chain! I'm personally a fan of _assari_ (light) broths, so I really enjoyed the yuzu tsukemen. Others in my group who like _kotteri_ (rich) broths weren't as impressed. | ![IMG_20190315_122621](https://user-images.githubusercontent.com/13490001/55678964-998e2580-58b7-11e9-9427-db4b312abb9e.jpg) |
 
 ### DOWNSTAIRS COFFEE
 * 📍 Roppongi
@@ -195,6 +197,8 @@ Garden lounge at night was 😍 We paid ￥800 per person to get in. Decent cock
 * :coffee: Morning gibraltor
 * 🚀 [Google Maps](https://goo.gl/maps/yse6Se2xfp62) / [Website](http://www.bear-pond.com/) / [Tabelog](https://tabelog.com/en/tokyo/A1318/A131802/13093829/)
 
+Lots of buzz about this place! Really great espresso in the gibraltor I got. I even braved dairy milk (I'm lactose intolerant) and it was worth it. No photos allowed inside the shop.
+
 ### Ojaga (おじゃが)
 * 📍 Shimokitazawa
 * 🍽 Potato dishes
@@ -205,14 +209,18 @@ Garden lounge at night was 😍 We paid ￥800 per person to get in. Decent cock
 * 🍰 Shaved ice + sweets
 * 🚀 [Google Maps](https://goo.gl/maps/YE81pXM4BDP2) / [Website](https://shimokita-chaen.com/) / [Tabelog](https://tabelog.com/tokyo/A1318/A131802/13025597/)
 
-🌟 This was my favorite dessert place 😭 We got the zenzai with shirotama + kinako, and matcha shaved ice.
+🌟 This was my favorite dessert place 😭 We got the matcha shaved ice with shirotama + kinako, and zenzai with fried mochi and frothy matcha to pour on top.
+
+| Shaved ice | Zenzai |
+| --- | --- |
+| ![shaved ice](https://user-images.githubusercontent.com/13490001/55679024-80d23f80-58b8-11e9-988a-eea31646ad29.jpg) | ![zenzai](https://user-images.githubusercontent.com/13490001/55679023-80d23f80-58b8-11e9-98ed-11e4bcfebc2d.jpg) |
 
 ### Sankyuu/Yamahisa (山久)
 * 📍 Jiyugaoka
 * 🍽 Soba
 * 🚀 [Google Maps](https://goo.gl/maps/PJq19F6Dq9r) / [Tabelog](https://tabelog.com/cn/tokyo/A1317/A131703/13005094/)
 
-Tabelog and Google Maps translate the shop name differently 🤷‍ Either way, it's delicious!!!
+Tabelog and Google Maps translate the shop name differently 🤷‍ Either way, the soba was delicious!!! I was too busy catching up with friends that I didn't take any photos 😅
 
 ### WOMB
 * 📍 Shibuya
@@ -230,9 +238,15 @@ Counterpart Coffee again :coffee:
 * 🍽 Oyakodon
 * 🚀 [Google Maps](https://goo.gl/maps/5PAtsW6Zq7x) / [Website](http://www.ise-corporation.jp/iseten.html) / [Tabelog](https://tabelog.com/en/tokyo/A1305/A130501/13003931/)
 
-The special with raw egg on top was 🔥 🍳 ❤️
+| ℹ️ | 📷 |
+| --- | --- |
+| Oyakodon speciality shop in the Sunshine City Alpa mall. The special with raw egg on top was 🔥 🍳 ❤️  | ![iseroku](https://user-images.githubusercontent.com/13490001/55679054-1cfc4680-58b9-11e9-8e52-3f76cdb7a2bf.jpg) |
 
 ### Tsukiji Miyagawa Honten (つきじ宮川 本廛)
 * 📍 Tsukiji
 * 🍽 Unagi
 * 🚀 [Google Maps](https://goo.gl/maps/BwC1arowCP12) / [Website](http://www.unagi-miyagawanorenkai.jp/) / [Tabelog](https://tabelog.com/en/tokyo/A1313/A131301/13002304/)
+
+| ℹ️ | 📷 |
+| --- | --- |
+| Delicious mid-tier unagi place. We got the a la carte dinner, which was definitely enough. They had other unagi appetizers, too. | ![miyagawa honten](https://user-images.githubusercontent.com/13490001/55679042-dc9cc880-58b8-11e9-88ae-f3f3fd5ad6c1.jpg) |
