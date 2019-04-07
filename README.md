@@ -8,7 +8,7 @@ A log of everything I ate and coffee I drank during my Tokyo 2019 trip 🍡☕�
 * 🍽 Horse sashimi
 * 🚀 [Google Maps](https://goo.gl/maps/7PzmF5jcTL72) / [Website](https://gardengroup.co.jp/brand/nikusushi/#shinjukuku) / [Tabelog](https://tabelog.com/en/tokyo/A1304/A130401/13223328/)
 
-Great first dinner. This small joint literally translates to "meat sushi"—as exepected, we had horse sashimi (aka **basashi**), as well as raw chicken! I enjoyed the many ways they prepared basashi: nigiri, sashimi, negitoro, marinated, etc. I also recommend the cured egg yolks.
+Great first dinner. This small joint literally translates to "meat sushi"—as expected, we had horse sashimi (aka **basashi**), as well as raw chicken! I enjoyed the many ways they prepared basashi: nigiri, sashimi, negitoro, marinated, etc. I also recommend the cured egg yolks.
 
 ## Day 1
 
