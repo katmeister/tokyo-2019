@@ -183,6 +183,8 @@ This shop is owned by Mercedes Benz and has a large downstairs seating area. It 
 * 🍽 Yakiniku
 * 🚀 [Google Maps](https://goo.gl/maps/EHJVPHSEamM2) / [Tabelog](https://tabelog.com/en/tokyo/A1307/A130701/13166084/)
 
+This yakiniku joint had a more upscale vibe than what I'm used to, but still decently priced. The gyutan was great, and the nicer meats were 🔥
+
 ### 1967
 * 📍 Roppongi
 * 🍷 Fancy lounge
@@ -203,6 +205,8 @@ Lots of buzz about this place! Really great espresso in the gibraltor I got. I e
 * 📍 Shimokitazawa
 * 🍽 Potato dishes
 * 🚀 [Google Maps](https://goo.gl/maps/D78N6Jn8hYv) / [Website](https://shimokita-ojaga.com/71589/) / [Tabelog](https://tabelog.com/en/tokyo/A1318/A131802/13049309/)
+
+As the name would suggest, this place had a lot of potato specials. We got the nikujaga lunch set, which was simple and home-y.
 
 ### Shimokita Chaen Oyama (しもきた茶苑大山)
 * 📍 Shimokitazawa
