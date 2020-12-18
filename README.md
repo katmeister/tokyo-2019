@@ -35,7 +35,7 @@ Great first dinner. This small joint literally translates to "meat sushi"—as e
 ### Harajuku Gyozalo (原宿餃子樓)
 * 📍 Jingumae
 * 🍽 Gyoza
-* 🚀 [Google Maps]() / [Website]() / [Tabelog](https://tabelog.com/tw/tokyo/A1306/A130601/13001284/) / [Google Maps](https://goo.gl/maps/3qpG8UnoVN52)
+* 🚀 [Google Maps](https://goo.gl/maps/3qpG8UnoVN52) / [Tabelog](https://tabelog.com/tw/tokyo/A1306/A130601/13001284/)
 
 Our pre-dinner. Fairly standard gyoza joint. Lots of seating.
 
